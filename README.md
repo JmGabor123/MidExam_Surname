@@ -1,1 +1,1 @@
-# MidExam_Surname
+# MidExam_Gabor
